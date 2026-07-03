@@ -1,4 +1,4 @@
-# 
+# Ultimate Kaspersky Total Security extensions for Mac OS | Advanced Kaspersky Total Security extensions for PC Windows. Featuring openvpn support and phishing protection — optimized for maximum performance on every platform.
 
 
 
